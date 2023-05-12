@@ -59,13 +59,13 @@ technologies to meet future requirements.</br>
    <summary>📃 Resume</summary>
 
  ## Education
- - 📍 **Uttarakhand Technical University**-----------------------**< 2019-2023 >**\
+ - 📍 **Uttarakhand Technical University**-----------------------**< 2021-2025>**\
  📖**Bachelor's of technology-< Information Technology >**
  
- - 📍 **Jawahar Navodaya Vidyalaya, Dhanbad**------------------**< 2017-2019 >**\
+ - 📍 **Divine Light School, Haridwar**------------------**< 2020-2021 >**\
    📖**Senior Secondary Schooling-< Intermediate Science >**
  
- - 📍 **Jawahar Navodaya Vidyalaya, Dhanbad**------------------**< 2012-2017 >**\
+ - 📍 **Divine Light School, Haridwar**------------------**< 2019-2020 >**\
    📖**Secondary Schooling**
  
    
